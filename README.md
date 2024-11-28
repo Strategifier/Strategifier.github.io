@@ -1,1 +1,1 @@
-# Strategifier.github.io
+Everything I want is to change this.
